@@ -1,4 +1,4 @@
-# Ont do wrong works sujal i wiil not be responsible anything bad u did
+# Dont do wrong works sujal i wiil not be responsible anything bad u did
 
 # Inshackle v1.0
 ## Author: Ashish Kumar singh
